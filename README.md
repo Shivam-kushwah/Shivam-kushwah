@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Shivam-kushwah](https://github.com/Shivam-kushwah)
 
-- 📫 How to reach me **shivamkushwah3648@gmail.com**
+- 📫 How to reach me **rudrashiva2731@gmail.com**
 
 - ⚡ Fun fact **I think I'm funny**
 
